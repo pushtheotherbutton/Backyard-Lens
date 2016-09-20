@@ -16,6 +16,6 @@ in the cabin, cast halite below. The cause was the tarp, letting past what could
 the hull, splayed gas fumes and fish scales, revealed a view we never cared to know.
 
 
-I put my temple to the snow for you, and looked toward where the keel kissed the dirt.
+I put my temple to the snow for you, and looked toward where the keel softly kissed the dirt.
 
 - Michael Colombo 
